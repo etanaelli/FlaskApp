@@ -1,1 +1,1 @@
-moi mun nimi on paavo hauska tavata
+moi nimeni on paavo hauska tavata
